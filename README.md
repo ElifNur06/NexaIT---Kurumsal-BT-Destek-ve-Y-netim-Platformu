@@ -1,0 +1,1 @@
+# NexaIT---Kurumsal-BT-Destek-ve-Y-netim-Platformu
